@@ -1,6 +1,6 @@
 ### Hi there
 
-# The Mahesh Linganna
+# The Mahesh Linganna The Euler
 
 I am the King Maker.
 
